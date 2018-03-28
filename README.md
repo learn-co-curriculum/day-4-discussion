@@ -1,6 +1,7 @@
 ## Objectives
 
 1. Learn about being awesome.
+2. Being awesome just comes naturally for me.
 
 
 ## Instructions
